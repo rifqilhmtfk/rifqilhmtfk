@@ -4,4 +4,4 @@ Perkenalkan nama saya **Rifqi Ilham Taufik**
 
 Saya seorang **Mahasiswa** di [Universitas Perjuangan Tasikmalaya](https://unper.ac.id/)
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Instagram](https://www.instagram.com/rifqit_/) ku ya.
+Jika kamu tertarik untuk berkenalan denganku, silakan kunjungi [Linked In](https://www.linkedin.com/in/rifqi-ilham-taufik-778762287/) ku ya.
