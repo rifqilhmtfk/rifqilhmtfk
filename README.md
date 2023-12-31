@@ -1,4 +1,4 @@
-# Halo semua! 
+# Haello world! 
 
 Perkenalkan nama saya **Rifqi Ilham Taufik**
 
